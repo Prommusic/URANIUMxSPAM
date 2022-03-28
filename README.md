@@ -1,7 +1,7 @@
 # URANIUMxSPAM
 ,<h1 align="center">
 
-  <b>  [🇮🇳]⚔️𝙊𝙁𝙁𝙄𝘾𝙄𝘼𝙇✙𝙎𝙋𝘼𝙈𝘽𝙊𝙏⚔️[🇮🇳] </b>
+  <b>  [🇮🇳]⚔️🇴 ғғɪᴄɪᴀʟ︻╦̵̵͇̿̿̿̿╤──🇸 ᴘᴀᴍʙᴏᴛ⚔️[🇮🇳] </b>
 
 </h1>
 
@@ -13,7 +13,7 @@
 
 <p align="center">
 
-  <img src="https://telegra.ph/file/3ec065b0cc34dea58467c.jpg" alt="🚩𝐔𝐑𝐀𝐍𝐈𝐔𝐌 𝐱 𝐒𝐏𝐀𝐌𝐁𝐎𝐓🚩">
+  <img src="https://te.legra.ph/file/5c52dc199f3a614b0bebd.jpg" alt="🚩🇴 ғғɪᴄɪᴀʟ︻╦̵̵͇̿̿̿̿╤──🇸 ᴘᴀᴍʙᴏᴛ🚩">
 
 </p>
 
